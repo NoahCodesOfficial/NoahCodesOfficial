@@ -1,0 +1,5 @@
+- Welcome to my profile, @NoahCodesOfficial 
+- Intrested in : Devolpin Shooter Games, And minecraft servers 
+- Learning C#
+- Contact on socials (below) 
+- Contact : Discord : noahcodes
